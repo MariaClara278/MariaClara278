@@ -1,5 +1,5 @@
 - 👋 Oii,sou Maria Clara
-- 👀 Eu gosto de Dançar
+- 👀 Nossa Senhora das Graças
 - 🌱 MariaClara278
 - 💞️ 14 years
 - 📫 Paraná
