@@ -1,4 +1,4 @@
-- 👋 Oii,sou Maria Clara
+- 👋 Oii,sou a Maria Clara
 - 👀 Nossa Senhora das Graças
 - 🌱 MariaClara278
 - 💞️ 14 years
